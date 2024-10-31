@@ -3,7 +3,7 @@ Through my interest I try to go stargazing every month and learn more about astr
 
 ![astrophotography](webb-stsci-01hygj40m03m78wnacjtjmp73r-2k)
 
-![astrophotography](jeremy-thomas-pq2DJBntZW0-unsplash.jpg)
+![astrophotography](jeremy-thomas-pq2DJBntZW0-unsplash)
 
 [Home](README.md)
 
