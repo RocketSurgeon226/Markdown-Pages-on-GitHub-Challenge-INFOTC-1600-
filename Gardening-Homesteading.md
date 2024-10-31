@@ -12,4 +12,6 @@ Throughout the past couple of moths I have devolped a fondness for **homesteadin
 
 [Home](README.md)
 
-[Last Page: Astronomy](Astronomy.md)  [Next: Music](Music.md)
+[Last Page: Astronomy](Astronomy.md)
+
+[Next: Music](Music.md)
