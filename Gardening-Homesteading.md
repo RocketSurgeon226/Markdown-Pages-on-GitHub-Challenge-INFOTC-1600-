@@ -5,7 +5,7 @@ Since the **COVID-19** quarantine my family developed a garden growing:
 * _Watermelon_  
 * _Cucumbers_  
 * _Chile_ _Peppers_  
-* _Romaine_ _lettuce_  
+* _Romaine_ _Lettuce_  
 * and _Corn_  
 
 ## Homesteading
