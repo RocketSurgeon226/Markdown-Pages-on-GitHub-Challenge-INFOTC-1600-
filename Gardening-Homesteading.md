@@ -1,4 +1,4 @@
-e## Gardening
+## Gardening
 
 Throughout the past couple of years I have developed the passion of **gardening** and wholefood **plant-based wellness**.  
 Since the **COVID-19** quarantine my family developed a garden growing:  
