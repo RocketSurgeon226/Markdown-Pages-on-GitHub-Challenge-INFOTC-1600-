@@ -1,6 +1,6 @@
 ## Music
 
-My infatuation with music has developed more and more since I was a child. I grew up listening to mostly oldschool **Hip** **Hop**, **R&B**, and **Gospel** music. Throughout middle and high school I was very captivated by the retro sounds of the past. This made me explore more genres such as, subgenres of _**EDM**_ like **House**, **Techno** and **Trance**, and also other forms of _**R&B**_ like **New Jack Swing**. New Jack Swing, developed in the late 80s and early 90s, was an amalagmation of Hip Hop, R&B, **Funk**, **Pop**, and **Jazz**.
+My infatuation with music has developed more and more since I was a child. I grew up listening to mostly oldschool **Hip** **Hop**, **R&B**, and **Gospel** music. Throughout middle and high school I was very captivated by the retro sounds of the past. This made me explore more genres such as, subgenres of _**EDM**_ like **House**, **Techno** and **Trance**, and also other forms of _**R&B**_ like **New Jack Swing**. New Jack Swing, developed in the late 80s and early 90s, from influences of of Hip Hop, R&B, **Funk**, **Pop**, and **Jazz**.
 
 Here are examples:
 
